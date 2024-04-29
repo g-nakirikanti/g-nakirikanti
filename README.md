@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @g-nakirikanti
 - 👀 I’m interested in ... Artificial Intelligence , Data Science and learning new things
 - 🌱 I’m currently learning ...Everything
-- 📫 How to reach me ... Email: gango370132gamil.com 
+- 📫 How to reach me ... Email: gango37013@gamil.com 
 - 😄 Pronouns: ... she/her
 - ⚡ Fun fact: ... Learning new things is very difficult
 
